@@ -1,0 +1,1 @@
+《黄鹤楼送孟浩然之广陵》原文翻译及赏析_作者李白<br>故人西辞黄鹤楼，烟花三月下扬州。<br>孤帆远影碧空尽，唯见长江天际流。 (唯 通：惟) <br><br>blog.oe7gk.cn<br>m.oe7gk.cn<br>wap.oe7gk.cn<br>www.oe7gk.cn<br>oe7gk.cn<br>blog.oe0l9.cn<br>m.oe0l9.cn<br>wap.oe0l9.cn<br>www.oe0l9.cn<br>oe0l9.cn<br>blog.oe24c.cn<br>m.oe24c.cn<br>wap.oe24c.cn<br>www.oe24c.cn<br>oe24c.cn<br>blog.oes6d.cn<br>m.oes6d.cn<br>wap.oes6d.cn<br>www.oes6d.cn<br>oes6d.cn<br>
